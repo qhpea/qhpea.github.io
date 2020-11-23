@@ -1,2 +1,1 @@
-# qhpea.github.io
-Our website
+Promoting ethical repeatable sciance and technology.
