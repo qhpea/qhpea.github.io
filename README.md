@@ -1,1 +1,1 @@
-Promoting ethical repeatable sciance and technology.
+Promoting ethical repeatable science and technology.
